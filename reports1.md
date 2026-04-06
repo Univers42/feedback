@@ -139,3 +139,10 @@ For each task or discussion, aim to ask at least three types of questions:
 The current performance demonstrates strong engagement, reliability, and a positive inclination toward team interaction. These are valuable foundations for growth.
 
 The next step is to evolve from a structured executor to a proactive leader by strengthening autonomy, critical thinking, and ownership. Developing these capabilities will significantly enhance overall impact and effectiveness in a leadership role.
+
+- https://modelthinkers.com/mental-model/the-phoenix-checklist?ref=cultivatedmanagement.com
+- https://www.cultivatedmanagement.com/critical-thinking/?utm_source=chatgpt.com
+- https://pathwise.io/critical-thinking-questions/?utm_source=chatgpt.com 
+- https://asana.com/resources/data-driven-decision-making 
+- https://www.indeed.com/career-advice/career-development/critical-thinking-examples?utm_source=chatgpt.com 
+- https://www.bmind.work/notebook/Asking_the_Right_Questions?utm_source=chatgpt.com
